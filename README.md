@@ -1,0 +1,2 @@
+# premium-chicken-coop-001-chicken-coop-building-run-pl
+Stop juggling a dozen Pinterest screenshots and messy spreadsheets—your entire chicken coop build, from foundation to run, now lives in one organized Notion dashboard.  This template eliminates the chaos of planning by providing a structured system to compare coop designs, track materials, manage budget, and schedule tasks. It's the only hub that a
